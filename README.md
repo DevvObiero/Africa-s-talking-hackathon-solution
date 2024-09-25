@@ -1,1 +1,1 @@
-# Africa-s-talking-hackathon-solution
+# Africas-talking-hackathon-solution
